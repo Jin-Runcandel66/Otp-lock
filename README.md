@@ -1,4 +1,4 @@
-•OTP LOCK TOOL BY XD GANGSTER'S•
+•OTP LOCK TOOL BY 𝐽𝛪𝛮 𝑅𝑈𝛮𝐶𝛥𝛮𝐷𝛯𝐿•
 
  
 git clone https://github.com/AWAIS-K1NG/XD-L0CK.git
@@ -18,10 +18,10 @@ THEN ENTER TARGET NUMBER WITHOUT COUNTRY CODE OR + AND ENTER
 
 IF YOU HAVE ANY QUESTION FEEL FREE TO ASK ME ON TELEGRAM
 
-ID :- t.me/MR_AWAIS777 
+ID :- 𝐽𝛪𝛮 𝑅𝑈𝛮𝐶𝛥𝛮𝐷𝛯𝐿
 
-ID2 :- t.me/MR_AWAIS999
+ID2 :- 𝐽𝛪𝛮 𝑅𝑈𝛮𝐶𝛥𝛮𝐷𝛯𝐿
 
-DON'T FORGET TO JOIN t.me/xd_gang
+DON'T FORGET TO JOIN 𝐽𝛪𝛮 𝑅𝑈𝛮𝐶𝛥𝛮𝐷𝛯𝐿
 
 # THANKS TO ALL #
