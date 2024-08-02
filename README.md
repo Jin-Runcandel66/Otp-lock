@@ -1,7 +1,7 @@
 •OTP LOCK TOOL BY 𝐽𝛪𝛮 𝑅𝑈𝛮𝐶𝛥𝛮𝐷𝛯𝐿•
 
  
-git clone https://github.com/AWAIS-K1NG/XD-L0CK.git
+git clone https://github.com/Jin-Runcandel66/Otp-lock
 
 
 cd XD-LOCK
